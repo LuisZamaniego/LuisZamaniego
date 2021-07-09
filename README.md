@@ -1,2 +1,1 @@
 # LuisZamaniego
-Diseñador Gráfico
